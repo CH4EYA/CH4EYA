@@ -4,7 +4,7 @@
 
 <img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_c92c64114175cab9db30da0931dd8cca_83a3fa0b_1280.webp" width=305>  
 
-###### links for info byiㅤ&ㅤsign my ata :P
+#### i' ll breath for you instead , slowly Ი𐑼
 
 ![](https://komarev.com/ghpvc/?username=reiningcloud&color=E2508F&style=plastic&label=　　candyscar　♡　　)  
 
