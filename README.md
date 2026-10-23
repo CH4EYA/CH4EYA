@@ -1,14 +1,14 @@
 <div align="center">
 
-#### <img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_8a8c954f3a004ecc1a055e63ea6b1d35_4483ad87_75.webp" width=20> when you're out of breath, SOS, me ! <img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_244cc609afedd4a43a0d4e2cdeb5d7eb_0586d68e_75.webp" width=20>
+#### <img src="https://file.garden/aRliYxn-C17HIW_i/blood.webp" width=20> falling victim to your fantasy
 
-<img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_c92c64114175cab9db30da0931dd8cca_83a3fa0b_1280.webp" width=305>  
+<img src="https://file.garden/aRliYxn-C17HIW_i/chaeyas.gif"> 
 
-#### i' ll breath for you instead , slowly Ი𐑼
+#### damn , I love it that you're so creepy ♡
 
-![](https://komarev.com/ghpvc/?username=reiningcloud&color=E2508F&style=plastic&label=　　candyscar　♡　　)  
+![](https://komarev.com/ghpvc/?username=reiningcloud&color=880808&style=plastic&label=　　creeps　♡　　)  
 
 
-[RENTRY !](https://rentry.co/avatarofgreed)‎ ‎ ‎ ‎‎‎‎‎  <img src="https://file.garden/aRliYxn-C17HIW_i/eye.webp" width=30>‎‎ㅤ  [STRAWPAGE !](https://reinyjune.straw.page)‎  ‎ ‎‎ ‎‎‎ ‎ ‎‎<img src="https://file.garden/aRliYxn-C17HIW_i/eye.webp" width=30>‎ ‎ ㅤ[ATABOOK !](https://reindrop.atabook.org)
+[REPRI !](https://repris.org/avatarofgreed)‎ ‎ ‎ ‎‎‎‎‎  <img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_fefb2ee7aa2e8f1c14c79c6c174fae01_ffbc67eb_75.webp" width=25>‎‎ㅤ  [STRAWPAGE !](https://reinyjune.straw.page)‎  ‎ ‎‎ ‎‎‎ ‎ ‎‎<img src="https://file.garden/aRliYxn-C17HIW_i/whale.webp" width=25>‎ ‎ ㅤ[ATABOOK !](https://reindrop.atabook.org) ‎ ‎ ‎‎‎‎‎  <img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_fefb2ee7aa2e8f1c14c79c6c174fae01_ffbc67eb_75.webp" width=25> ‎ ‎ ‎‎‎‎‎  [LISTO !](https://listography.com/sayeonlee)
 
-<img src="https://file.garden/aRliYxn-C17HIW_i/mizimizi.png" width=105> <img src="https://file.garden/aRliYxn-C17HIW_i/zomst.png" width=105> <img src="https://file.garden/aRliYxn-C17HIW_i/suaa.png" width=105>
+<img src="https://file.garden/aRliYxn-C17HIW_i/ajax.png" width=100> <img src="https://file.garden/aRliYxn-C17HIW_i/kae.png" width=100>
