@@ -30,7 +30,11 @@
   ##### int - chaeya fans　childe fans　kaeya fans　literally anyone
   ##### dni - ship discourse , i like other chi/kae ships too , chaeya is just my fave .
   ###### creds: @/cheri_clove for pfp , @/Quelynxyz for video 
+
 </details>
+<img width="330" height="186" alt="chaeyastatus" src="https://github.com/user-attachments/assets/ba17ee25-e95e-422c-b8c5-91780b08bc9a" />
+
+varka please . make them stand next to each other .
   </p>
   </td>
   </tr>
